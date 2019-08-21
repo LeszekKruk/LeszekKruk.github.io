@@ -1,1 +1,0 @@
-# LeszekKruk.github.io
